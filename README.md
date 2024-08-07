@@ -1,1 +1,1 @@
-Consegne esame di statistica
+Consegne esame di Statistica
